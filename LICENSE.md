@@ -1,4 +1,4 @@
-# 
+# Custom new token sniper bot scripts for Mac OS | Ultimate new token sniper bot scripts for PC Windows. Featuring event listeners and order execution — optimized for maximum performance on every platform.
 
 
 
